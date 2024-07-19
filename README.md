@@ -1,1 +1,1 @@
-New GitHub profile: [Dcompoze](https://github.com/dcompoze)
+New GitHub account: [Dcompoze](https://github.com/dcompoze)
